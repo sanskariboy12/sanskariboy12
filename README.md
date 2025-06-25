@@ -8,7 +8,7 @@
 
 📫 Connect with me:  9327201386
 🔗 [LinkedIn](www.linkedin.com/in/ankit-patel-00b24b267)
-📧 Email: your-ankitbro329@gmail.com 
+📧 Email: ankitbro329@gmail.com 
 
 
 <!---
